@@ -1,1 +1,1 @@
-# projectwise
+# please study well
